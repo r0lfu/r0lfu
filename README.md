@@ -1,4 +1,1 @@
-ahmet kamalı
-
-- r0lfu@proton.me
-- r0lfu on discord
+r0lfu on discord
